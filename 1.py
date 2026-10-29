@@ -2,27 +2,14 @@ bdsjfhbfabjhfsahjfsahjsahj
 asfaslkjfsalkjfsalkjfsakljfsafsa]a
 saflkjafslkjfKJFAKJFAHKJFHKJAHSKJHAFKJHKJSAHFKJahfkjhfsa
 aKJhlkjfhfsakjhkajhHHakjdhkjdshkjdshkjdshkjdshakjhdsajhdsajkhdsajkhsa
-adskjsdahkjdhkjshdkjshdkhsakjhdkjdshkjdhkjdsahsjkhdkjaHKJDHSKJDHDHKJLAHADSKJ
-KHDSALKJHDSAKJHAKDSJHKJDahkjdhkjdsakjhdskjhashkjsdhkjsahkjhAKJHSKJAHKHakjAKAHKJakhldsaDSKSAHKJDSHKJDHSAK
+adskjsdahkjdhkj
 
 
+Git iz very differ and we use this
+
+adssdsaa
+
+staunr
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-DSAD
 
